@@ -1,0 +1,2 @@
+# gamespersamaankuadratmemfaktorkan
+games kelas x
